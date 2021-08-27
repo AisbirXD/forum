@@ -1,4 +1,5 @@
 # forum aisbirXD
+[![20210731-150410.png](https://i.postimg.cc/zf29GPtH/20210731-150410.png)](https://postimg.cc/zLWddp1q)
 > Semua apapun itu akan dibahas disini
 ```
 Kejahatan atau apapun
